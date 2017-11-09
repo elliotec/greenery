@@ -1,1 +1,3 @@
+* * * * * ~/Dropbox/code/pusher/committed.sh >> ~/Dropbox/code/pusher/cron.log
+10 * * * * ~/Dropbox/code/pusher/push.sh >> ~/Dropbox/code/pusher/cron.log
 
