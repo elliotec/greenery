@@ -2,7 +2,7 @@
 FORTUNE=`fortune -sn 30`
 NUMBER=$(($RANDOM % 30))
 
-for run in {1..$NUMBER}
+for run in {1..30}
 do
   sh ./fortunate.sh
   git add . -A
