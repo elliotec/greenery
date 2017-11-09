@@ -1,4 +1,4 @@
 #!/bin/bash
-echo `fortune` >> ~/Dropbox/code/pusher/textfiles/file.txt
+echo `fortune` >> ~/Dropbox/code/pusher/file.txt
 
 
