@@ -265,3 +265,4 @@ Diplomacy is the art of letting the other party have things your way. -- Daniele
 But if you wish at once to do nothing and to be respectable nowdays, the best pretext is to be at work on some profound study. -- Leslie Stephen, "Sketches from Cambridge"
 A person who is more than casually interested in computers should be well schooled in machine language, since it is a fundamental part of a computer. -- Donald Knuth
 You never know how many friends you have until you rent a house on the beach.
+If entropy is increasing, where is it coming from?
