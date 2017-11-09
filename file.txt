@@ -851,3 +851,4 @@ QOTD: "Don't let your mind wander -- it's too little to be let out alone."
 Don't quit now, we might just as well lock the door and throw away the key.
 It's like deja vu all over again. -- Yogi Berra
 It is said an Eastern monarch once charged his wise men to invent him a sentence to be ever in view, and which should be true and appropriate in all times and situations. They presented him the words: "And this, too, shall pass away." -- Abraham Lincoln
+The only thing worse than X Windows: (X Windows) - X
