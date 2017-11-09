@@ -1,2 +1,1 @@
-* * * * * sh ~/Dropbox/code/pusher/push.sh >> ~/file.txt 2>&1
-* * * * * echo "shitty" >> ~/file.txt
+20 4 * * * sh ~/Dropbox/code/pusher/push.sh
