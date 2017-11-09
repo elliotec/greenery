@@ -849,3 +849,4 @@ QOTD: "I drive my car quietly, for it goes without saying."
 QOTD: "Don't let your mind wander -- it's too little to be let out alone."
 "It's like deja vu all over again." -- Yogi Berra
 Don't quit now, we might just as well lock the door and throw away the key.
+It's like deja vu all over again. -- Yogi Berra
