@@ -195,3 +195,4 @@ QOTD: "In the shopping mall of the mind, he's in the toy department."
 Thus spake the master programmer: "Time for you to leave." -- Geoffrey James, "The Tao of Programming"
 When you know absolutely nothing about the topic, make your forecast by asking a carefully selected probability sample of 300 others who don't know the answer either. -- Edgar R. Fiedler
 I know things about TROY DONAHUE that can't even be PRINTED!!
+Be careful when a loop exits to the same place from side and bottom.
