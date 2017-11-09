@@ -18,3 +18,4 @@ To restore a sense of reality, I think Walt Disney should have a Hardluckland. -
 Whenever someone tells you to take their advice, you can be pretty sure that they're not using it.
 To the systems programmer, users and applications serve only to provide a test load.
 The Bird of Time has but a little way to fly ... and the bird is on the wing. -- Omar Khayyam
+I must Create a System, or be enslav'd by another Man's; I will not Reason and Compare; my business is to Create. -- William Blake, "Jerusalem"
