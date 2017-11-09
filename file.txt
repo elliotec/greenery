@@ -581,3 +581,4 @@ Gordon's first law: If a research project is not worth doing, it is not worth do
 Optimism is the content of small men in high places. -- F. Scott Fitzgerald, "The Crack Up"
 problem drinker, n.: A man who never buys.
 Harp not on that string. -- William Shakespeare, "Henry VI"
+Just about every computer on the market today runs Unix, except the Mac (and nobody cares about it). -- Bill Joy 6/21/85
