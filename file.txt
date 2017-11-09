@@ -839,3 +839,4 @@ You will have many recoverable tape errors.
 A boss with no humor is like a job that's no fun.
 A Thaum is the basic unit of magical strength. It has been universally established as the amount of magic needed to create one small white pigeon or three normal sized billiard balls. -- Terry Pratchett, "The Light Fantastic"
 Happy feast of the pig!
+It seems intuitively obvious to me, which means that it might be wrong. -- Chris Torek
