@@ -273,3 +273,4 @@ Don't you wish that all the people who sincerely want to help you could agree wi
 Chicken Little was right.
 Even bytes get lonely for a little bit.
 Perhaps the biggest disappointments were the ones you expected anyway.
+"Can you program?" "Well, I'm literate, if that's what you mean!"
