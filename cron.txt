@@ -1,1 +1,1 @@
-* * * * * echo fortune >> ~/file.txt
+* * * * * sh ~/Dropbox/code/pusher/push.sh
