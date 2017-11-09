@@ -1,2 +1,1 @@
-5 * * * * ~/Dropbox/code/pusher/push.sh >> ~/Dropbox/code/pusher/cron.log
-
+* * * * * ~/Dropbox/code/pusher/push.sh
