@@ -1,7 +1,8 @@
 #!/bin/bash
 FORTUNE=`fortune`
 NUMBER=$(($RANDOM % 32768))
-FILENAME=$NUMBER.txt
+FILENAME=textfiles/$NUMBER.txt
 
 echo $FORTUNE > $FILENAME
+
 
