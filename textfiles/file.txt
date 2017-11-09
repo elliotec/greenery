@@ -196,3 +196,28 @@ Thus spake the master programmer: "Time for you to leave." -- Geoffrey James, "T
 When you know absolutely nothing about the topic, make your forecast by asking a carefully selected probability sample of 300 others who don't know the answer either. -- Edgar R. Fiedler
 I know things about TROY DONAHUE that can't even be PRINTED!!
 Be careful when a loop exits to the same place from side and bottom.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+core error - bus dumped
