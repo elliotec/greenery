@@ -1,1 +1,1 @@
-20 4 * * * sh ~/pusher/push.sh
+20 4 * * * bash ~/pusher/push.sh

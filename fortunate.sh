@@ -1,4 +1,4 @@
 #!/bin/bash
-echo `/usr/local/bin/fortune` > ~/pusher/file.txt
+echo `/usr/games/fortune` > ~/pusher/file.txt
 
 
