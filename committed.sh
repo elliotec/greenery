@@ -1,9 +1,12 @@
 #!/bin/bash
 FORTUNE=`fortune -sn 30`
+RANGE=30
+NUMBER=$(($RANDOM % $RANGE))
 
-for run in {1..$(($RANDOM % 30))}
+for ((run=1; run <= NUMBER; run++))
 do
-  sh ./fortunate.sh && git add . -A && git commit -m "$FORTUNE"
+  sh ./fortunate.sh
+  git add . -A
+  git commit -m "$FORTUNE"
 done
-
 
