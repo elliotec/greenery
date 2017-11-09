@@ -266,3 +266,4 @@ But if you wish at once to do nothing and to be respectable nowdays, the best pr
 A person who is more than casually interested in computers should be well schooled in machine language, since it is a fundamental part of a computer. -- Donald Knuth
 You never know how many friends you have until you rent a house on the beach.
 If entropy is increasing, where is it coming from?
+The Gordian Maxim: If a string has one end, it has another.
