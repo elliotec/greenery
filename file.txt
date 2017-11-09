@@ -1,1 +1,1 @@
-I develop for Linux for a living, I used to develop for DOS. Going from DOS to Linux is like trading a glider for an F117. (By entropy@world.std.com, Lawrence Foard)
+In any problem, if you find yourself doing an infinite amount of work, the answer may be obtained by inspection.
