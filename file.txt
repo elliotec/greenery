@@ -806,3 +806,4 @@ XXXI: The optimum committee has no members. XXXII: Hiring consultants to conduct
 program, n.: Any task that can't be completed in one telephone call or one day. Once a task is defined as a program ("training program," "sales program," or "marketing program"), its implementation always justifies hiring at least three more people.
 If a group of _N persons implements a COBOL compiler, there will be _N-1 passes. Someone in the group has to be the manager. -- T. Cheatham
 Here I am in the POSTERIOR OLFACTORY LOBULE but I don't see CARL SAGAN anywhere!!
+We're all sorry for the other guy when he loses his job to a machine. But when it comes to your job -- that's different. And it always will be different. -- McCoy, "The Ultimate Computer", stardate 4729.4
