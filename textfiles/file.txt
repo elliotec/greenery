@@ -223,3 +223,4 @@ Be careful when a loop exits to the same place from side and bottom.
 core error - bus dumped
 Dogs just don't seem to be able to tell the difference between important people and the rest of us.
 "Pull the trigger and you're garbage." -- Lady Blue
+Research, n.: Consider Columbus: He didn't know where he was going. When he got there he didn't know where he was. When he got back he didn't know where he had been. And he did it all on someone else's money.
