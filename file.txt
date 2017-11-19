@@ -1,1 +1,1 @@
-You're almost as happy as you think you are.
+You have a will that can be influenced by all with whom you come in contact.
