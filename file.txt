@@ -1,1 +1,1 @@
-You're at the end of the road again.
+Your lucky number has been disconnected.
