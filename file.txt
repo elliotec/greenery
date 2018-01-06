@@ -1,1 +1,1 @@
-Your supervisor is thinking about you.
+Don't get stuck in a closet -- wear yourself out.
