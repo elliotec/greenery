@@ -1,1 +1,1 @@
-Today is the last day of your life so far.
+You never hesitate to tackle the most difficult problems.
