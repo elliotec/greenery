@@ -1,1 +1,1 @@
-You will gain money by an immoral action.
+Don't look now, but the man in the moon is laughing at you.
