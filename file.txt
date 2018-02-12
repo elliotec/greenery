@@ -1,1 +1,1 @@
-Your reasoning is excellent -- it's only your basic assumptions that are wrong.
+Avert misunderstanding by calm, poise, and balance.
