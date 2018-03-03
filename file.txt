@@ -1,1 +1,1 @@
-Are you a turtle?
+Blow it out your ear.
