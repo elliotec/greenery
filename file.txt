@@ -1,1 +1,1 @@
-You will have domestic happiness and faithful friends.
+Your mode of life will be changed for the better because of new developments.
