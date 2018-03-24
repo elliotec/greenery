@@ -1,1 +1,1 @@
-Someone whom you reject today, will reject you tomorrow.
+Beware of low-flying butterflies.
