@@ -1,1 +1,1 @@
-You will remember something that you should not have forgotten.
+Your mode of life will be changed for the better because of new developments.
