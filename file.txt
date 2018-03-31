@@ -1,1 +1,1 @@
-Your life would be very empty if you had nothing to regret.
+Don't you wish you had more energy... or less ambition?
