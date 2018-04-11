@@ -1,1 +1,1 @@
-Hain't we got all the fools in town on our side? And hain't that a big enough majority in any town? -- Mark Twain, "Huckleberry Finn"
+Q: How many IBM CPU's does it take to do a logical right shift? A: 33. 1 to hold the bits and 32 to push the register.
