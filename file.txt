@@ -1,1 +1,1 @@
-You definitely intend to start living sometime soon.
+Everything that you know is wrong, but you can be straightened out.
