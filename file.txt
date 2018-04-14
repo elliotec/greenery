@@ -1,1 +1,1 @@
-You will be held hostage by a radical group.
+A gift of a flower will soon be made to you.
