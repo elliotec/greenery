@@ -1,1 +1,1 @@
-Today is the last day of your life so far.
+Snow Day -- stay home.
