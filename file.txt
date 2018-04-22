@@ -1,1 +1,1 @@
-Live in a world of your own, but always welcome visitors.
+You are deeply attached to your friends and acquaintances.
