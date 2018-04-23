@@ -1,1 +1,1 @@
-Your heart is pure, and your mind clear, and your soul devout.
+Caution: Keep out of reach of children.
