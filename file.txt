@@ -1,1 +1,1 @@
-Don't you feel more like you do now than you did when you came in?
+Good day to deal with people in high places; particularly lonely stewardesses.
