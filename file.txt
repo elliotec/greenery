@@ -1,1 +1,1 @@
-You will probably marry after a very brief courtship.
+It's lucky you're going so slowly, because you're going in the wrong direction.
