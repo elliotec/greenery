@@ -1,1 +1,1 @@
-You'd like to do it instantaneously, but that's too slow.
+Beware of a tall black man with one blond shoe.
