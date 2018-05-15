@@ -1,1 +1,1 @@
-Do not overtax your powers.
+Life is to you a dashing and bold adventure.
