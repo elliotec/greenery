@@ -1,1 +1,1 @@
-You will be awarded the Nobel Peace Prize... posthumously.
+You are dishonest, but never to the point of hurting a friend.
