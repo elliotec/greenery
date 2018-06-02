@@ -1,1 +1,1 @@
-Long life is in store for you.
+Tomorrow, you can be anywhere.
