@@ -1,1 +1,1 @@
-Your talents will be recognized and suitably rewarded.
+Just to have it is enough.
