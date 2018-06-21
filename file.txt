@@ -1,1 +1,1 @@
-Someone whom you reject today, will reject you tomorrow.
+Your nature demands love and your happiness depends on it.
