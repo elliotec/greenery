@@ -1,1 +1,1 @@
-You are always busy.
+Your lucky number has been disconnected.
