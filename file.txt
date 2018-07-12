@@ -1,1 +1,1 @@
-There is a 20% chance of tomorrow.
+You enjoy the company of other people.
