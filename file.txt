@@ -1,1 +1,1 @@
-You will be run over by a bus.
+You will contract a rare disease.
