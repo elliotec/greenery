@@ -1,1 +1,1 @@
-You will win success in whatever calling you adopt.
+Beware of a dark-haired man with a loud tie.
