@@ -1,1 +1,1 @@
-Q: Why is it that the more accuracy you demand from an interpolation function, the more expensive it becomes to compute? A: That's the Law of Spline Demand.
+Q: What's the difference betweeen USL and the Graf Zeppelin? A: The Graf Zeppelin represented cutting edge technology for its time.
