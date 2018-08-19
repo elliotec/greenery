@@ -1,1 +1,1 @@
-You should go home.
+Your ignorance cramps my conversation.
