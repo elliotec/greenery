@@ -1,1 +1,1 @@
-You are standing on my toes.
+You need more time; and you probably always will.
