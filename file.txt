@@ -1,1 +1,1 @@
-Tonight's the night: Sleep in a eucalyptus tree.
+You will always have good luck in your personal affairs.
