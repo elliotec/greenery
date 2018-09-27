@@ -1,1 +1,1 @@
-The time is right to make new friends.
+Your lover will never wish to leave you.
