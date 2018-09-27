@@ -1,1 +1,1 @@
-You don't become a failure until you're satisfied with being one.
+The time is right to make new friends.
