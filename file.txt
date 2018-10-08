@@ -1,1 +1,1 @@
-A visit to a strange place will bring fresh work.
+You will engage in a profitable business activity.
