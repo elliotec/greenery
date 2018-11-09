@@ -1,1 +1,1 @@
-A tall, dark stranger will have more fun than you.
+Your aim is high and to the right.
