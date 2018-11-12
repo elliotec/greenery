@@ -1,1 +1,1 @@
-If you sow your wild oats, hope for a crop failure.
+Live in a world of your own, but always welcome visitors.
