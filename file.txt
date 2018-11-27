@@ -1,1 +1,1 @@
-Your boyfriend takes chocolate from strangers.
+A few hours grace before the madness begins again.
