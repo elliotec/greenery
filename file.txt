@@ -1,1 +1,1 @@
-You will obey or molten silver will be poured into your ears.
+Alimony and bribes will engage a large share of your wealth.
