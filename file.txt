@@ -1,1 +1,1 @@
-You will be surprised by a loud noise.
+Learn to pause -- or nothing worthwhile can catch up to you.
