@@ -1,1 +1,1 @@
-Never give an inch!
+You would if you could but you can't so you won't.
