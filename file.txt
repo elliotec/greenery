@@ -1,1 +1,1 @@
-If you can read this, you're too close.
+Beware of low-flying butterflies.
