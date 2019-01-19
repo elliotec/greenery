@@ -1,1 +1,1 @@
-You will be surrounded by luxury.
+There is a fly on your nose.
