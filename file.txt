@@ -1,1 +1,1 @@
-You will gain money by a speculation or lottery.
+Do not sleep in a eucalyptus tree tonight.
