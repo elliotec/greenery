@@ -1,1 +1,1 @@
-You will win success in whatever calling you adopt.
+Beware the one behind you.
