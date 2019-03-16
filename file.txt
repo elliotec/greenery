@@ -1,1 +1,1 @@
-Give him an evasive answer.
+Domestic happiness and faithful friends.
