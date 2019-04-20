@@ -1,1 +1,1 @@
-Among the lucky, you are the chosen one.
+You are fairminded, just and loving.
