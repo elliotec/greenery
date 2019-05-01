@@ -1,1 +1,1 @@
-Your fly might be open (but don't check it just now).
+Today is the first day of the rest of the mess.
