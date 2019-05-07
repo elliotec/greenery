@@ -1,1 +1,1 @@
-You dialed 5483.
+You will overcome the attacks of jealous associates.
