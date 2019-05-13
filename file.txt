@@ -1,1 +1,1 @@
-You will be the last person to buy a Chrysler.
+A gift of a flower will soon be made to you.
