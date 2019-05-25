@@ -1,1 +1,1 @@
-For there are moments when one can neither think nor feel. And if one can neither think nor feel, she thought, where is one? -- Virginia Woolf, "To the Lighthouse" [Quoted in "VMS Internals and Data Structures", V4.4, when referring to powerfail recovery.]
+When I was younger, I could remember anything, whether it had happened or not; but my faculties are decaying now and soon I shall be so I cannot remember any but the things that never happened. It is sad to go to pieces like this but we all have to do it. -- Mark Twain
