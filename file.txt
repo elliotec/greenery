@@ -1,1 +1,1 @@
-Caution: Keep out of reach of children.
+Live in a world of your own, but always welcome visitors.
