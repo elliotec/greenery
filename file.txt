@@ -1,1 +1,1 @@
-Q: How does a hacker fix a function which doesn't work for all of the elements in its domain? A: He changes the domain.
+Your reasoning is excellent -- it's only your basic assumptions that are wrong.
