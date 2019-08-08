@@ -1,1 +1,1 @@
-You have had a long-term stimulation relative to business.
+You have literary talent that you should take pains to develop.
