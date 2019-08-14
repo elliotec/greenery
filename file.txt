@@ -1,1 +1,1 @@
-Exercise caution in your daily affairs.
+Your boyfriend takes chocolate from strangers.
