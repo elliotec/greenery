@@ -1,1 +1,1 @@
-Your lover will never wish to leave you.
+You have an ability to sense and know higher truth.
