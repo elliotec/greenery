@@ -1,1 +1,1 @@
-You will gain money by a speculation or lottery.
+You will gain money by a fattening action.
