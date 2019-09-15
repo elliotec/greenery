@@ -1,1 +1,1 @@
-Beware of a tall black man with one blond shoe.
+You will gain money by a speculation or lottery.
