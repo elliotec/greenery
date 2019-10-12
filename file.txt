@@ -1,1 +1,1 @@
-Don't you feel more like you do now than you did when you came in?
+You are a fluke of the universe; you have no right to be here.
