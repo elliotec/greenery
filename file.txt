@@ -1,1 +1,1 @@
-You own a dog, but you can only feed a cat.
+Don't let your mind wander -- it's too little to be let out alone.
