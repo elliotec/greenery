@@ -1,1 +1,1 @@
-Your love life will be happy and harmonious.
+Your aims are high, and you are capable of much.
