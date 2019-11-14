@@ -1,1 +1,1 @@
-You are only young once, but you can stay immature indefinitely.
+You have a strong desire for a home and your family interests come first.
