@@ -1,1 +1,1 @@
-You will inherit some money or a small piece of land.
+Do nothing unless you must, and when you must act -- hesitate.
