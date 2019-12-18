@@ -1,1 +1,1 @@
-Try to get all of your posthumous medals in advance.
+You are going to have a new love affair.
