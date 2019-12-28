@@ -1,1 +1,1 @@
-Beware of Bigfoot!
+Reply hazy, ask again later.
