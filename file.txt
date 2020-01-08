@@ -1,1 +1,1 @@
-Change your thoughts and you change your world.
+You have no real enemies.
