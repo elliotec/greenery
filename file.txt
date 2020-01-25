@@ -1,1 +1,1 @@
-You will probably marry after a very brief courtship.
+Beware of a dark-haired man with a loud tie.
