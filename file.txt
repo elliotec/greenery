@@ -1,1 +1,1 @@
-You prefer the company of the opposite sex, but are well liked by your own.
+You will inherit millions of dollars.
