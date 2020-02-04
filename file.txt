@@ -1,1 +1,1 @@
-You look tired.
+Today is National Existential Ennui Awareness Day.
