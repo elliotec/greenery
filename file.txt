@@ -1,1 +1,1 @@
-Your business will go through a period of considerable expansion.
+Your lover will never wish to leave you.
