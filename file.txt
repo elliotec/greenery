@@ -1,1 +1,1 @@
-Save energy: be apathetic.
+Expect the worst, it's the least you can do.
