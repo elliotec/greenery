@@ -1,1 +1,1 @@
-Don't kiss an elephant on the lips today.
+Today is the tomorrow you worried about yesterday.
