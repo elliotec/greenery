@@ -1,1 +1,1 @@
-Live in a world of your own, but always welcome visitors.
+An exotic journey in downtown Newark is in your future.
