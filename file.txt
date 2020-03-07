@@ -1,1 +1,1 @@
-A few hours grace before the madness begins again.
+If your life was a horse, you'd have to shoot it.
