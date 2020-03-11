@@ -1,1 +1,1 @@
-Your love life will be... interesting.
+You will gain money by a speculation or lottery.
