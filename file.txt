@@ -1,1 +1,1 @@
-Q: How many IBM CPU's does it take to do a logical right shift? A: 33. 1 to hold the bits and 32 to push the register.
+Q: Why is Christmas just like a day at the office? A: You do all of the work and the fat guy in the suit gets all the credit.
