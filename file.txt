@@ -1,1 +1,1 @@
-Your boss is a few sandwiches short of a picnic.
+Learn to pause -- or nothing worthwhile can catch up to you.
