@@ -1,1 +1,1 @@
-You will engage in a profitable business activity.
+You will forget that you ever knew me.
