@@ -1,1 +1,1 @@
-Stay away from flying saucers today.
+A visit to a fresh place will bring strange work.
