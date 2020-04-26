@@ -1,1 +1,1 @@
-You love your home and want it to be beautiful.
+A few hours grace before the madness begins again.
