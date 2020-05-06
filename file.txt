@@ -1,1 +1,1 @@
-Reply hazy, ask again later.
+Don't get to bragging.
