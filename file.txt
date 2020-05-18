@@ -1,1 +1,1 @@
-If your life was a horse, you'd have to shoot it.
+Your heart is pure, and your mind clear, and your soul devout.
