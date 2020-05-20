@@ -1,1 +1,1 @@
-You are magnetic in your bearing.
+You will gain money by a fattening action.
