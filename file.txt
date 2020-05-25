@@ -1,1 +1,1 @@
-You will experience a strong urge to do good; but it will pass.
+If you stand on your head, you will get footprints in your hair.
