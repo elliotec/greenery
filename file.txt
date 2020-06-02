@@ -1,1 +1,1 @@
-You will pass away very quickly.
+You will be singled out for promotion in your work.
