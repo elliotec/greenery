@@ -1,1 +1,1 @@
-You too can wear a nose mitten.
+Snow Day -- stay home.
