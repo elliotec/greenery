@@ -1,1 +1,1 @@
-Do nothing unless you must, and when you must act -- hesitate.
+Your domestic life may be harmonious.
