@@ -1,1 +1,1 @@
-Break into jail and claim police brutality.
+You will be run over by a bus.
