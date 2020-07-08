@@ -1,1 +1,1 @@
-You teach best what you most need to learn.
+Beware of a tall blond man with one black shoe.
