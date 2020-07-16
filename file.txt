@@ -1,1 +1,1 @@
-Excellent day for putting Slinkies on an escalator.
+Expect the worst, it's the least you can do.
