@@ -1,1 +1,1 @@
-Executive ability is prominent in your make-up.
+You will experience a strong urge to do good; but it will pass.
