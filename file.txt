@@ -1,1 +1,1 @@
-Life is to you a dashing and bold adventure.
+You have a deep interest in all that is artistic.
