@@ -1,1 +1,1 @@
-You are fairminded, just and loving.
+You get along very well with everyone except animals and people.
