@@ -1,1 +1,1 @@
-Never give an inch!
+You will obey or molten silver will be poured into your ears.
