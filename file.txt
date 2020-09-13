@@ -1,1 +1,1 @@
-Make a wish, it might come true.
+You possess a mind not merely twisted, but actually sprained.
