@@ -1,1 +1,1 @@
-Your supervisor is thinking about you.
+In the stairway of life, you'd best take the elevator.
