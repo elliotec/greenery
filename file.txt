@@ -1,1 +1,1 @@
-Your boss is a few sandwiches short of a picnic.
+Good news from afar can bring you a welcome visitor.
