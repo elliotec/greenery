@@ -1,1 +1,1 @@
-You will attract cultured and artistic people to your home.
+Many changes of mind and mood; do not hesitate too long.
