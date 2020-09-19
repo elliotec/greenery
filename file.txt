@@ -1,1 +1,1 @@
-Good day to deal with people in high places; particularly lonely stewardesses.
+There is a fly on your nose.
