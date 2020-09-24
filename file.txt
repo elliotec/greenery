@@ -1,1 +1,1 @@
-I've touch'd the highest point of all my greatness; And from that full meridian of my glory I haste now to my setting. I shall fall, Like a bright exhalation in the evening And no man see me more. -- Shakespeare
+Q: Why is it that the more accuracy you demand from an interpolation function, the more expensive it becomes to compute? A: That's the Law of Spline Demand.
