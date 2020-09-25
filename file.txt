@@ -1,1 +1,1 @@
-There will be big changes for you but you will be happy.
+question = ( to ) ? be : ! be; -- Wm. Shakespeare
