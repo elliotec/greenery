@@ -1,1 +1,1 @@
-There was a phone call for you.
+You will get what you deserve.
