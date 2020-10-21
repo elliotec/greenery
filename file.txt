@@ -1,1 +1,1 @@
-Never look up when dragons fly overhead.
+Your domestic life may be harmonious.
