@@ -1,1 +1,1 @@
-You never hesitate to tackle the most difficult problems.
+You will gain money by an illegal action.
