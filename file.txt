@@ -1,1 +1,1 @@
-Write yourself a threatening letter and pen a defiant reply.
+Today is the last day of your life so far.
