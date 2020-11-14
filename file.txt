@@ -1,1 +1,1 @@
-You can rent this space for only $5 a week.
+Be different: conform.
