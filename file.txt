@@ -1,1 +1,1 @@
-Beware the one behind you.
+Don't read everything you believe.
