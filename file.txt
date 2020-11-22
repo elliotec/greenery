@@ -1,1 +1,1 @@
-Never be led astray onto the path of virtue.
+You're at the end of the road again.
