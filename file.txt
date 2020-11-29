@@ -1,1 +1,1 @@
-You may be gone tomorrow, but that doesn't mean that you weren't here today.
+Write yourself a threatening letter and pen a defiant reply.
