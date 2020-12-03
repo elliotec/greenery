@@ -1,1 +1,1 @@
-Beware of low-flying butterflies.
+Your domestic life may be harmonious.
