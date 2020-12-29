@@ -1,1 +1,1 @@
-Blow it out your ear.
+You will have long and healthy life.
