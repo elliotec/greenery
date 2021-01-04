@@ -1,1 +1,1 @@
-You have a strong appeal for members of your own sex.
+You can rent this space for only $5 a week.
