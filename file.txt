@@ -1,1 +1,1 @@
-Excellent day for putting Slinkies on an escalator.
+Keep it short for pithy sake.
