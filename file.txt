@@ -1,1 +1,1 @@
-You'd like to do it instantaneously, but that's too slow.
+You have taken yourself too seriously.
