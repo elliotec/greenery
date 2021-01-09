@@ -1,1 +1,1 @@
-You are only young once, but you can stay immature indefinitely.
+Ships are safe in harbor, but they were never meant to stay there.
