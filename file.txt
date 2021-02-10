@@ -1,1 +1,1 @@
-Is that really YOU that is reading this?
+Good news from afar can bring you a welcome visitor.
