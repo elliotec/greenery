@@ -1,1 +1,1 @@
-You have an unusual understanding of the problems of human relationships.
+You will have long and healthy life.
