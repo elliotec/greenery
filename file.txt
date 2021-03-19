@@ -1,1 +1,1 @@
-You will visit the Dung Pits of Glive soon.
+You are confused; but this is your normal state.
