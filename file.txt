@@ -1,1 +1,1 @@
-Your supervisor is thinking about you.
+You have Egyptian flu: you're going to be a mummy.
