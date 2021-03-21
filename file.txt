@@ -1,1 +1,1 @@
-Your boss is a few sandwiches short of a picnic.
+You will be traveling and coming into a fortune.
