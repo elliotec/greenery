@@ -1,1 +1,1 @@
-Your ignorance cramps my conversation.
+You have many friends and very few living enemies.
