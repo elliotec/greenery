@@ -1,1 +1,1 @@
-That secret you've been guarding, isn't.
+You will gain money by a fattening action.
