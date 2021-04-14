@@ -1,1 +1,1 @@
-You have a truly strong individuality.
+There is a 20% chance of tomorrow.
