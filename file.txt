@@ -1,1 +1,1 @@
-You are confused; but this is your normal state.
+You will be awarded the Nobel Peace Prize... posthumously.
