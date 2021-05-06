@@ -1,1 +1,1 @@
-Your talents will be recognized and suitably rewarded.
+question = ( to ) ? be : ! be; -- Wm. Shakespeare
