@@ -1,1 +1,1 @@
-You will soon forget this.
+Make a wish, it might come true.
