@@ -1,1 +1,1 @@
-question = ( to ) ? be : ! be; -- Wm. Shakespeare
+The ripest fruit falls first. -- William Shakespeare, "Richard II"
