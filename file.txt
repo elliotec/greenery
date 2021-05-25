@@ -1,1 +1,1 @@
-Your reasoning powers are good, and you are a fairly good planner.
+Ships are safe in harbor, but they were never meant to stay there.
