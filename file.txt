@@ -1,1 +1,1 @@
-You will live a long, healthy, happy life and make bags of money.
+You will be singled out for promotion in your work.
