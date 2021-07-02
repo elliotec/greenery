@@ -1,1 +1,1 @@
-You have a will that can be influenced by all with whom you come in contact.
+Don't you wish you had more energy... or less ambition?
