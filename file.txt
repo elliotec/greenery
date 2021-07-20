@@ -1,1 +1,1 @@
-You will have good luck and overcome many hardships.
+Your sister swims out to meet troop ships.
