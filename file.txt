@@ -1,1 +1,1 @@
-You will be married within a year, and divorced within two.
+You have a will that can be influenced by all with whom you come in contact.
