@@ -1,1 +1,1 @@
-You will live a long, healthy, happy life and make bags of money.
+Your own qualities will help prevent your advancement in the world.
