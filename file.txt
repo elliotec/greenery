@@ -1,1 +1,1 @@
-Alimony and bribes will engage a large share of your wealth.
+You will not be elected to public office this year.
