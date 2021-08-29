@@ -1,1 +1,1 @@
-You are taking yourself far too seriously.
+Your society will be sought by people of taste and refinement.
