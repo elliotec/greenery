@@ -1,1 +1,1 @@
-Cold hands, no gloves.
+Don't read everything you believe.
