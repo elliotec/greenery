@@ -1,1 +1,1 @@
-Keep it short for pithy sake.
+You have a truly strong individuality.
