@@ -1,1 +1,1 @@
-You will feel hungry again in another hour.
+You will be winged by an anti-aircraft battery.
