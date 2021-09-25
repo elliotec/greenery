@@ -1,1 +1,1 @@
-Someone whom you reject today, will reject you tomorrow.
+The time is right to make new friends.
