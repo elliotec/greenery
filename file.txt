@@ -1,1 +1,1 @@
-You will engage in a profitable business activity.
+Everything that you know is wrong, but you can be straightened out.
