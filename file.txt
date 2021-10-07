@@ -1,1 +1,1 @@
-Life is to you a dashing and bold adventure.
+Save energy: be apathetic.
