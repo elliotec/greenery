@@ -1,1 +1,1 @@
-If you can read this, you're too close.
+You will receive a legacy which will place you above want.
