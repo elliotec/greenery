@@ -1,1 +1,1 @@
-Your society will be sought by people of taste and refinement.
+Good day to let down old friends who need help.
