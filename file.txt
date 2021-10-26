@@ -1,1 +1,1 @@
-You are capable of planning your future.
+Perfect day for scrubbing the floor and other exciting things.
