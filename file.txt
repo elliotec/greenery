@@ -1,1 +1,1 @@
-Ships are safe in harbor, but they were never meant to stay there.
+You definitely intend to start living sometime soon.
