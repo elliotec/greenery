@@ -1,1 +1,1 @@
-Good day for overcoming obstacles. Try a steeplechase.
+question = ( to ) ? be : ! be; -- Wm. Shakespeare
