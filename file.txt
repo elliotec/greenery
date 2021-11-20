@@ -1,1 +1,1 @@
-Tuesday After Lunch is the cosmic time of the week.
+Don't kiss an elephant on the lips today.
