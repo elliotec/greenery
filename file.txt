@@ -1,1 +1,1 @@
-Your domestic life may be harmonious.
+You will inherit some money or a small piece of land.
