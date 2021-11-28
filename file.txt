@@ -1,1 +1,1 @@
-Bridge ahead. Pay troll.
+question = ( to ) ? be : ! be; -- Wm. Shakespeare
