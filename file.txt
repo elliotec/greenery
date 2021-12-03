@@ -1,1 +1,1 @@
-You will have domestic happiness and faithful friends.
+You will live to see your grandchildren.
