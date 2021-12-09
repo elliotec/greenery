@@ -1,1 +1,1 @@
-You will be divorced within a year.
+You recoil from the crude; you tend naturally toward the exquisite.
