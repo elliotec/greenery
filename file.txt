@@ -1,1 +1,1 @@
-You could live a better life, if you had a better mind and a better body.
+You have the power to influence all with whom you come in contact.
