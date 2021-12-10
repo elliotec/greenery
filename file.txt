@@ -1,1 +1,1 @@
-Don't you feel more like you do now than you did when you came in?
+Your life would be very empty if you had nothing to regret.
