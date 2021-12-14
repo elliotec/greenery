@@ -1,1 +1,1 @@
-Your reasoning powers are good, and you are a fairly good planner.
+Don't worry so loud, your roommate can't think.
