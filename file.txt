@@ -1,1 +1,1 @@
-Your love life will be happy and harmonious.
+There is a 20% chance of tomorrow.
