@@ -1,1 +1,1 @@
-Today is what happened to yesterday.
+Your own qualities will help prevent your advancement in the world.
