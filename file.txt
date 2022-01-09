@@ -1,1 +1,1 @@
-You now have Asian Flu.
+You will engage in a profitable business activity.
