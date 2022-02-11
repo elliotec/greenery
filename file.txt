@@ -1,1 +1,1 @@
-Break into jail and claim police brutality.
+Condense soup, not books!
