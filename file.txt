@@ -1,1 +1,1 @@
-You have a strong desire for a home and your family interests come first.
+Try to get all of your posthumous medals in advance.
