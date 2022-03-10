@@ -1,1 +1,1 @@
-You will experience a strong urge to do good; but it will pass.
+If you think last Tuesday was a drag, wait till you see what happens tomorrow!
