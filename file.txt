@@ -1,1 +1,1 @@
-Excellent day to have a rotten day.
+You will be awarded some great honor.
