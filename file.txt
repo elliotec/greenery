@@ -1,1 +1,1 @@
-You will have good luck and overcome many hardships.
+You will give someone a piece of your mind, which you can ill afford.
