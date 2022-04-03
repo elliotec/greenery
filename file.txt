@@ -1,1 +1,1 @@
-You'd like to do it instantaneously, but that's too slow.
+Your present plans will be successful.
