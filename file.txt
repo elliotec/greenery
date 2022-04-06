@@ -1,1 +1,1 @@
-It is right that he too should have his little chronicle, his memories, his reason, and be able to recognize the good in the bad, the bad in the worst, and so grow gently old all down the unchanging days and die one day like any other day, only shorter. -- Samuel Beckett, "Malone Dies"
+Delay not, Caesar. Read it instantly. -- Shakespeare, "Julius Caesar" 3,1 Here is a letter, read it at your leisure. -- Shakespeare, "Merchant of Venice" 5,1 [Quoted in "VMS Internals and Data Structures", V4.4, when referring to I/O system services.]
