@@ -1,1 +1,1 @@
-Just to have it is enough.
+You prefer the company of the opposite sex, but are well liked by your own.
