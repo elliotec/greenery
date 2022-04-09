@@ -1,1 +1,1 @@
-What happened last night can happen again.
+Beware of a dark-haired man with a loud tie.
