@@ -1,1 +1,1 @@
-Someone is speaking well of you.
+Avoid reality at all costs.
