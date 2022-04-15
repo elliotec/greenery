@@ -1,1 +1,1 @@
-You have a truly strong individuality.
+Today is what happened to yesterday.
