@@ -1,1 +1,1 @@
-Avoid gunfire in the bathroom tonight.
+You could live a better life, if you had a better mind and a better body.
