@@ -1,1 +1,1 @@
-You are always busy.
+You're ugly and your mother dresses you funny.
