@@ -1,1 +1,1 @@
-You are deeply attached to your friends and acquaintances.
+Your aim is high and to the right.
