@@ -1,1 +1,1 @@
-You will become rich and famous unless you don't.
+Try to value useful qualities in one who loves you.
