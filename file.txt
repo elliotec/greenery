@@ -1,1 +1,1 @@
-You will get what you deserve.
+In the stairway of life, you'd best take the elevator.
