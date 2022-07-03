@@ -1,1 +1,1 @@
-FORTUNE PROVIDES QUESTIONS FOR THE GREAT ANSWERS: #19 A: To be or not to be. Q: What is the square root of 4b^2?
+Q: How does a hacker fix a function which doesn't work for all of the elements in its domain? A: He changes the domain.
