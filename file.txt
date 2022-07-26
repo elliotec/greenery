@@ -1,1 +1,1 @@
-You have a truly strong individuality.
+Chess tonight.
