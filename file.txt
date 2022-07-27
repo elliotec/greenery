@@ -1,1 +1,1 @@
-It was all so different before everything changed.
+You're almost as happy as you think you are.
