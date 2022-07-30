@@ -1,1 +1,1 @@
-You will receive a legacy which will place you above want.
+You will remember something that you should not have forgotten.
