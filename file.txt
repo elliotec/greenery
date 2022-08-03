@@ -1,1 +1,1 @@
-A gift of a flower will soon be made to you.
+Do not overtax your powers.
