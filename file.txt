@@ -1,1 +1,1 @@
-Try to get all of your posthumous medals in advance.
+If your life was a horse, you'd have to shoot it.
