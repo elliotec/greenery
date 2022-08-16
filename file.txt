@@ -1,1 +1,1 @@
-You will be awarded a medal for disregarding safety in saving someone.
+You're currently going through a difficult transition period called "Life."
