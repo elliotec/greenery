@@ -1,1 +1,1 @@
-You never hesitate to tackle the most difficult problems.
+Your temporary financial embarrassment will be relieved in a surprising manner.
