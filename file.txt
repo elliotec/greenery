@@ -1,1 +1,1 @@
-Beware of a dark-haired man with a loud tie.
+Make a wish, it might come true.
