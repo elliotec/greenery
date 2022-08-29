@@ -1,1 +1,1 @@
-You will outgrow your usefulness.
+You have a truly strong individuality.
