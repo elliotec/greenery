@@ -1,1 +1,1 @@
-Save energy: be apathetic.
+You're at the end of the road again.
