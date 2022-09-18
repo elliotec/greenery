@@ -1,1 +1,1 @@
-You will forget that you ever knew me.
+Your domestic life may be harmonious.
