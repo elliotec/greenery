@@ -1,1 +1,1 @@
-You should go home.
+Make a wish, it might come true.
