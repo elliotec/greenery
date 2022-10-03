@@ -1,1 +1,1 @@
-Keep emotionally active. Cater to your favorite neurosis.
+question = ( to ) ? be : ! be; -- Wm. Shakespeare
