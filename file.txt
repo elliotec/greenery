@@ -1,1 +1,1 @@
-You will have domestic happiness and faithful friends.
+Your lover will never wish to leave you.
