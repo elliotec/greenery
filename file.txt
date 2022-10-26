@@ -1,1 +1,1 @@
-Tuesday After Lunch is the cosmic time of the week.
+Keep it short for pithy sake.
