@@ -1,1 +1,1 @@
-You will live a long, healthy, happy life and make bags of money.
+You dialed 5483.
