@@ -1,1 +1,1 @@
-Just to have it is enough.
+It's lucky you're going so slowly, because you're going in the wrong direction.
