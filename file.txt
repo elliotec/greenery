@@ -1,1 +1,1 @@
-Condense soup, not books!
+Another good night not to sleep in a eucalyptus tree.
