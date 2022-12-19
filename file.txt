@@ -1,1 +1,1 @@
-Your boyfriend takes chocolate from strangers.
+You prefer the company of the opposite sex, but are well liked by your own.
