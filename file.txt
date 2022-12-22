@@ -1,1 +1,1 @@
-Your society will be sought by people of taste and refinement.
+Excellent day for putting Slinkies on an escalator.
