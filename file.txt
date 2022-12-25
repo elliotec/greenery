@@ -1,1 +1,1 @@
-Beware of a dark-haired man with a loud tie.
+You will be called upon to help a friend in trouble.
