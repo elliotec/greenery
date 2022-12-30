@@ -1,1 +1,1 @@
-You will gain money by a speculation or lottery.
+You will pass away very quickly.
