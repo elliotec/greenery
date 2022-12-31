@@ -1,1 +1,1 @@
-You will be the last person to buy a Chrysler.
+You will overcome the attacks of jealous associates.
