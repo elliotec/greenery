@@ -1,1 +1,1 @@
-Don't get stuck in a closet -- wear yourself out.
+Avoid reality at all costs.
