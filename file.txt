@@ -1,1 +1,1 @@
-Your reasoning is excellent -- it's only your basic assumptions that are wrong.
+You'd like to do it instantaneously, but that's too slow.
