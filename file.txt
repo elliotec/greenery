@@ -1,1 +1,1 @@
-Your lucky color has faded.
+You get along very well with everyone except animals and people.
