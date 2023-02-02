@@ -1,1 +1,1 @@
-Your talents will be recognized and suitably rewarded.
+You will be traveling and coming into a fortune.
