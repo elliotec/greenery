@@ -1,1 +1,1 @@
-Are you sure the back door is locked?
+You will not be elected to public office this year.
