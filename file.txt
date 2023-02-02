@@ -1,1 +1,1 @@
-You will triumph over your enemy.
+You will be awarded some great honor.
