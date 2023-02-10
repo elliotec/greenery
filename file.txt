@@ -1,1 +1,1 @@
-You are magnetic in your bearing.
+Your object is to save the world, while still leading a pleasant life.
