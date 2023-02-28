@@ -1,1 +1,1 @@
-It is right that he too should have his little chronicle, his memories, his reason, and be able to recognize the good in the bad, the bad in the worst, and so grow gently old all down the unchanging days and die one day like any other day, only shorter. -- Samuel Beckett, "Malone Dies"
+For the fashion of Minas Tirith was such that it was built on seven levels, each delved into a hill, and about each was set a wall, and in each wall was a gate. -- J.R.R. Tolkien, "The Return of the King" [Quoted in "VMS Internals and Data Structures", V4.4, when referring to system overview.]
