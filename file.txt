@@ -1,1 +1,1 @@
-The time is right to make new friends.
+This will be a memorable month -- no matter how hard you try to forget it.
