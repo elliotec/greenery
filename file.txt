@@ -1,1 +1,1 @@
-You'd like to do it instantaneously, but that's too slow.
+Today is the tomorrow you worried about yesterday.
