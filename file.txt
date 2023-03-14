@@ -1,1 +1,1 @@
-Your talents will be recognized and suitably rewarded.
+You have literary talent that you should take pains to develop.
