@@ -1,1 +1,1 @@
-You love peace.
+A tall, dark stranger will have more fun than you.
