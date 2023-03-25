@@ -1,1 +1,1 @@
-Be different: conform.
+Tuesday is the Wednesday of the rest of your life.
