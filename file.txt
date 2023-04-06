@@ -1,1 +1,1 @@
-Change your thoughts and you change your world.
+There is a fly on your nose.
