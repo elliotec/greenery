@@ -1,1 +1,1 @@
-Do nothing unless you must, and when you must act -- hesitate.
+You will be imprisoned for contributing your time and skill to a bank robbery.
