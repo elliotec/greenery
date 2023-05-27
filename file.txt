@@ -1,1 +1,1 @@
-You attempt things that you do not even plan because of your extreme stupidity.
+Your talents will be recognized and suitably rewarded.
