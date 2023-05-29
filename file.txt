@@ -1,1 +1,1 @@
-You'll feel much better once you've given up hope.
+You two ought to be more careful--your love could drag on for years and years.
