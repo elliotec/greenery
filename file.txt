@@ -1,1 +1,1 @@
-You are capable of planning your future.
+Your mode of life will be changed for the better because of good news soon.
