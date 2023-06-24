@@ -1,1 +1,1 @@
-You single-handedly fought your way into this hopeless mess.
+Expect a letter from a friend who will ask a favor of you.
