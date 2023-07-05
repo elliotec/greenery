@@ -1,1 +1,1 @@
-Condense soup, not books!
+That secret you've been guarding, isn't.
