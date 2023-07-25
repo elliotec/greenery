@@ -1,1 +1,1 @@
-It was all so different before everything changed.
+A tall, dark stranger will have more fun than you.
