@@ -1,1 +1,1 @@
-You will be misunderstood by everyone.
+You're a card which will have to be dealt with.
