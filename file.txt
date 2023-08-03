@@ -1,1 +1,1 @@
-You're at the end of the road again.
+Your love life will be happy and harmonious.
