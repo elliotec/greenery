@@ -1,1 +1,1 @@
-You shall be rewarded for a dastardly deed.
+Your business will go through a period of considerable expansion.
