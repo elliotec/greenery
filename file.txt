@@ -1,1 +1,1 @@
-Your own qualities will help prevent your advancement in the world.
+You're a card which will have to be dealt with.
