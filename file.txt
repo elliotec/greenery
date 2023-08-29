@@ -1,1 +1,1 @@
-Don't read everything you believe.
+A vivid and creative mind characterizes you.
