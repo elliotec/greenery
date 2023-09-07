@@ -1,1 +1,1 @@
-You will gain money by a fattening action.
+You will meet an important person who will help you advance professionally.
