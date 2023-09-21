@@ -1,1 +1,1 @@
-You never know how many friends you have until you rent a house on the beach.
+You attempt things that you do not even plan because of your extreme stupidity.
