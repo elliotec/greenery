@@ -1,1 +1,1 @@
-Are you making all this up as you go along?
+Chicken Little only has to be right once.
