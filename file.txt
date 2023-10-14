@@ -1,1 +1,1 @@
-You single-handedly fought your way into this hopeless mess.
+You will engage in a profitable business activity.
