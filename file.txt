@@ -1,1 +1,1 @@
-You never know how many friends you have until you rent a house on the beach.
+Your boss climbed the corporate ladder, wrong by wrong.
