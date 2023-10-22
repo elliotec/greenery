@@ -1,1 +1,1 @@
-You will be singled out for promotion in your work.
+You will be imprisoned for contributing your time and skill to a bank robbery.
