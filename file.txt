@@ -1,1 +1,1 @@
-If your life was a horse, you'd have to shoot it.
+You have a strong desire for a home and your family interests come first.
