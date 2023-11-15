@@ -1,1 +1,1 @@
-You now have Asian Flu.
+You are a very redundant person, that's what kind of person you are.
