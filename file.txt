@@ -1,1 +1,1 @@
-Today is the tomorrow you worried about yesterday.
+You have a will that can be influenced by all with whom you come in contact.
