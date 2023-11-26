@@ -1,1 +1,1 @@
-Your present plans will be successful.
+Hope that the day after you die is a nice day.
