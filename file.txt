@@ -1,1 +1,1 @@
-You will be called upon to help a friend in trouble.
+If you think last Tuesday was a drag, wait till you see what happens tomorrow!
