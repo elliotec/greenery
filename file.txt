@@ -1,1 +1,1 @@
-Break into jail and claim police brutality.
+Make a wish, it might come true.
