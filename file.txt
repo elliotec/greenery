@@ -1,1 +1,1 @@
-For there are moments when one can neither think nor feel. And if one can neither think nor feel, she thought, where is one? -- Virginia Woolf, "To the Lighthouse" [Quoted in "VMS Internals and Data Structures", V4.4, when referring to powerfail recovery.]
+All I know is what the words know, and dead things, and that makes a handsome little sum, with a beginning and a middle and an end, as in the well-built phrase and the long sonata of the dead. -- Samuel Beckett
