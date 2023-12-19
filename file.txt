@@ -1,1 +1,1 @@
-You will be run over by a bus.
+You have an unusual understanding of the problems of human relationships.
