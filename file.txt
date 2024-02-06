@@ -1,1 +1,1 @@
-You will win success in whatever calling you adopt.
+You have a deep appreciation of the arts and music.
