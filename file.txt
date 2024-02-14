@@ -1,1 +1,1 @@
-You will have domestic happiness and faithful friends.
+An avocado-tone refrigerator would look good on your resume.
