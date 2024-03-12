@@ -1,1 +1,1 @@
-Don't you wish you had more energy... or less ambition?
+An exotic journey in downtown Newark is in your future.
