@@ -1,1 +1,1 @@
-You need more time; and you probably always will.
+Beware of low-flying butterflies.
