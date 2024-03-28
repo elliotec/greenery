@@ -1,1 +1,1 @@
-Expect the worst, it's the least you can do.
+Generosity and perfection are your everlasting goals.
