@@ -1,1 +1,1 @@
-Your lover will never wish to leave you.
+Tuesday is the Wednesday of the rest of your life.
