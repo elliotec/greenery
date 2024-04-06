@@ -1,1 +1,1 @@
-Don't look now, but there is a multi-legged creature on your shoulder.
+Expect the worst, it's the least you can do.
