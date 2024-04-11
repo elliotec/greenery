@@ -1,1 +1,1 @@
-You single-handedly fought your way into this hopeless mess.
+Are you a turtle?
