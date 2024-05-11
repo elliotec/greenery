@@ -1,1 +1,1 @@
-You are taking yourself far too seriously.
+Stay away from hurricanes for a while.
