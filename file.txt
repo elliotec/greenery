@@ -1,1 +1,1 @@
-Your love life will be happy and harmonious.
+Beware of a tall blond man with one black shoe.
