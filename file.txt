@@ -1,1 +1,1 @@
-Chicken Little only has to be right once.
+Tuesday is the Wednesday of the rest of your life.
