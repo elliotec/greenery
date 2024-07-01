@@ -1,1 +1,1 @@
-You will be given a post of trust and responsibility.
+You're at the end of the road again.
