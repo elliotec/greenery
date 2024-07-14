@@ -1,1 +1,1 @@
-Beware of a tall blond man with one black shoe.
+You will be recognized and honored as a community leader.
