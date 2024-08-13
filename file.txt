@@ -1,1 +1,1 @@
-You are deeply attached to your friends and acquaintances.
+You plan things that you do not even attempt because of your extreme caution.
