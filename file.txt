@@ -1,1 +1,1 @@
-The time is right to make new friends.
+You will have a long and boring life.
