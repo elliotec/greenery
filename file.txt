@@ -1,1 +1,1 @@
-Caution: breathing may be hazardous to your health.
+An avocado-tone refrigerator would look good on your resume.
