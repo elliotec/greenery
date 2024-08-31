@@ -1,1 +1,1 @@
-Your society will be sought by people of taste and refinement.
+You seek to shield those you love and you like the role of the provider.
