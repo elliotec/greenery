@@ -1,1 +1,1 @@
-You will be recognized and honored as a community leader.
+Tomorrow, you can be anywhere.
