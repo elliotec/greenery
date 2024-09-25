@@ -1,1 +1,1 @@
-You too can wear a nose mitten.
+Live in a world of your own, but always welcome visitors.
