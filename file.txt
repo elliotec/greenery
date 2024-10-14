@@ -1,1 +1,1 @@
-After your lover has gone you will still have PEANUT BUTTER!
+Tonight's the night: Sleep in a eucalyptus tree.
