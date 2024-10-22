@@ -1,1 +1,1 @@
-You will have domestic happiness and faithful friends.
+Today is the last day of your life so far.
