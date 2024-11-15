@@ -1,1 +1,1 @@
-Don't let your mind wander -- it's too little to be let out alone.
+You are only young once, but you can stay immature indefinitely.
