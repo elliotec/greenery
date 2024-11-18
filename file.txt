@@ -1,1 +1,1 @@
-Good day to let down old friends who need help.
+You will experience a strong urge to do good; but it will pass.
