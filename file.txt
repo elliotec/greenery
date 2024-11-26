@@ -1,1 +1,1 @@
-Break into jail and claim police brutality.
+You will be given a post of trust and responsibility.
