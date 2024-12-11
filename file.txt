@@ -1,1 +1,1 @@
-You are a very redundant person, that's what kind of person you are.
+You have a deep interest in all that is artistic.
