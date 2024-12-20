@@ -1,1 +1,1 @@
-Your lucky number has been disconnected.
+You will never know hunger.
