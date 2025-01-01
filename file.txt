@@ -1,1 +1,1 @@
-Q: How many IBM CPU's does it take to do a logical right shift? A: 33. 1 to hold the bits and 32 to push the register.
+Q: How many journalists does it take to screw in a light bulb? A: Three. One to report it as an inspired government program to bring light to the people, one to report it as a diabolical government plot to deprive the poor of darkness, and one to win a Pulitzer prize for reporting that Electric Company hired a light bulb-assassin to break the bulb in the first place.
