@@ -1,1 +1,1 @@
-You have the power to influence all with whom you come in contact.
+Your nature demands love and your happiness depends on it.
