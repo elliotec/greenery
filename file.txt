@@ -1,1 +1,1 @@
-Chicken Little only has to be right once.
+You will always get the greatest recognition for the job you least like.
