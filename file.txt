@@ -1,1 +1,1 @@
-Just to have it is enough.
+Your love life will be happy and harmonious.
