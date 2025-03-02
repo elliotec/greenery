@@ -1,1 +1,1 @@
-You will receive a legacy which will place you above want.
+You will have domestic happiness and faithful friends.
