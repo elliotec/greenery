@@ -1,1 +1,1 @@
-Your boyfriend takes chocolate from strangers.
+Alimony and bribes will engage a large share of your wealth.
