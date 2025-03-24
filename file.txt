@@ -1,1 +1,1 @@
-You will pass away very quickly.
+Executive ability is prominent in your make-up.
