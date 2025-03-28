@@ -1,1 +1,1 @@
-Today is the tomorrow you worried about yesterday.
+Beware the one behind you.
