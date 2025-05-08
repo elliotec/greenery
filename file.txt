@@ -1,1 +1,1 @@
-You own a dog, but you can only feed a cat.
+You will be held hostage by a radical group.
