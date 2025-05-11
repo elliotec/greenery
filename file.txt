@@ -1,1 +1,1 @@
-You will never know hunger.
+Don't hate yourself in the morning -- sleep till noon.
