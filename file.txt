@@ -1,1 +1,1 @@
-Is that really YOU that is reading this?
+You will have good luck and overcome many hardships.
