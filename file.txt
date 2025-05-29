@@ -1,1 +1,1 @@
-Don't you wish you had more energy... or less ambition?
+You will be the last person to buy a Chrysler.
