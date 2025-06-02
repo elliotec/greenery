@@ -1,1 +1,1 @@
-A tall, dark stranger will have more fun than you.
+You are as I am with You.
