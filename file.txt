@@ -1,1 +1,1 @@
-You have a deep appreciation of the arts and music.
+You shall be rewarded for a dastardly deed.
