@@ -1,1 +1,1 @@
-Tomorrow, you can be anywhere.
+Your lucky number has been disconnected.
