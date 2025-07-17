@@ -1,1 +1,1 @@
-Don't look now, but the man in the moon is laughing at you.
+Expect a letter from a friend who will ask a favor of you.
