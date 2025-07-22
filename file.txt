@@ -1,1 +1,1 @@
-He jests at scars who never felt a wound. -- Shakespeare, "Romeo and Juliet, II. 2"
+Q: Why is it that the more accuracy you demand from an interpolation function, the more expensive it becomes to compute? A: That's the Law of Spline Demand.
