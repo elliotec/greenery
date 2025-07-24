@@ -1,1 +1,1 @@
-You will be awarded the Nobel Peace Prize... posthumously.
+Courage is your greatest present need.
