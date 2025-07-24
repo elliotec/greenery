@@ -1,1 +1,1 @@
-Tonight's the night: Sleep in a eucalyptus tree.
+You will be awarded the Nobel Peace Prize... posthumously.
