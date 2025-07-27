@@ -1,1 +1,1 @@
-Someone whom you reject today, will reject you tomorrow.
+There is a fly on your nose.
