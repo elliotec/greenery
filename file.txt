@@ -1,1 +1,1 @@
-You are fighting for survival in your own sweet and gentle way.
+Beware of low-flying butterflies.
