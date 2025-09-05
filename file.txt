@@ -1,1 +1,1 @@
-You too can wear a nose mitten.
+Everything will be just tickety-boo today.
