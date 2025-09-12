@@ -1,1 +1,1 @@
-A visit to a fresh place will bring strange work.
+You will be married within a year.
