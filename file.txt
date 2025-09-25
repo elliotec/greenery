@@ -1,1 +1,1 @@
-It's all in the mind, ya know.
+It was all so different before everything changed.
