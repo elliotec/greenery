@@ -1,1 +1,1 @@
-Expect a letter from a friend who will ask a favor of you.
+You need more time; and you probably always will.
