@@ -1,1 +1,1 @@
-You will experience a strong urge to do good; but it will pass.
+You will win success in whatever calling you adopt.
