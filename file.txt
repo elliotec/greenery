@@ -1,1 +1,1 @@
-An exotic journey in downtown Newark is in your future.
+You will live a long, healthy, happy life and make bags of money.
