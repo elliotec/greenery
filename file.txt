@@ -1,1 +1,1 @@
-Your lucky color has faded.
+You too can wear a nose mitten.
