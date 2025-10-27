@@ -1,1 +1,1 @@
-Your love life will be happy and harmonious.
+You will give someone a piece of your mind, which you can ill afford.
