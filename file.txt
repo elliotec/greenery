@@ -1,1 +1,1 @@
-Your reasoning powers are good, and you are a fairly good planner.
+Don't read any sky-writing for the next two weeks.
