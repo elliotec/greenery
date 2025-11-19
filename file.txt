@@ -1,1 +1,1 @@
-You will contract a rare disease.
+You will triumph over your enemy.
