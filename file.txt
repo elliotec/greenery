@@ -1,1 +1,1 @@
-Your ignorance cramps my conversation.
+Try to value useful qualities in one who loves you.
