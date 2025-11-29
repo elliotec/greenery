@@ -1,1 +1,1 @@
-You have been selected for a secret mission.
+Change your thoughts and you change your world.
