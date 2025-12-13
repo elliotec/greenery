@@ -1,1 +1,1 @@
-You teach best what you most need to learn.
+You will be held hostage by a radical group.
