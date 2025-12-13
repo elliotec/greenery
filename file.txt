@@ -1,1 +1,1 @@
-You will be held hostage by a radical group.
+Your society will be sought by people of taste and refinement.
