@@ -1,1 +1,1 @@
-Look afar and see the end from the beginning.
+You will be the last person to buy a Chrysler.
