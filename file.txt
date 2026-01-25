@@ -1,1 +1,1 @@
-Your reasoning is excellent -- it's only your basic assumptions that are wrong.
+Your reasoning powers are good, and you are a fairly good planner.
