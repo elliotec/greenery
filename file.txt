@@ -1,1 +1,1 @@
-If you stand on your head, you will get footprints in your hair.
+You possess a mind not merely twisted, but actually sprained.
