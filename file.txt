@@ -1,1 +1,1 @@
-Avoid reality at all costs.
+Your business will assume vast proportions.
