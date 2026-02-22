@@ -1,1 +1,1 @@
-Change your thoughts and you change your world.
+You feel a whole lot more like you do now than you did when you used to.
