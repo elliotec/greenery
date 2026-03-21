@@ -1,1 +1,1 @@
-You have a deep appreciation of the arts and music.
+Try to have as good a life as you can under the circumstances.
