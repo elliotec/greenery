@@ -1,1 +1,1 @@
-You will live to see your grandchildren.
+Everything will be just tickety-boo today.
