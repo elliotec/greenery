@@ -1,1 +1,1 @@
-That secret you've been guarding, isn't.
+Don't look back, the lemmings are gaining on you.
