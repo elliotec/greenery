@@ -1,1 +1,1 @@
-You will inherit millions of dollars.
+Don't hate yourself in the morning -- sleep till noon.
