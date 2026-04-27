@@ -1,1 +1,1 @@
-Chicken Little only has to be right once.
+Cold hands, no gloves.
