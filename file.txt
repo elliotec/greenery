@@ -1,1 +1,1 @@
-Good day to deal with people in high places; particularly lonely stewardesses.
+You'll feel much better once you've given up hope.
