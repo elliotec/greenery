@@ -1,1 +1,1 @@
-It's lucky you're going so slowly, because you're going in the wrong direction.
+Beauty and harmony are as necessary to you as the very breath of life.
