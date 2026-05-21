@@ -1,1 +1,1 @@
-Your society will be sought by people of taste and refinement.
+Your business will assume vast proportions.
