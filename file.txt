@@ -1,1 +1,1 @@
-Don't look back, the lemmings are gaining on you.
+Tonight you will pay the wages of sin; Don't forget to leave a tip.
