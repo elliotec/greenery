@@ -1,1 +1,1 @@
-Be cautious in your daily affairs.
+Don't look back, the lemmings are gaining on you.
