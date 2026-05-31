@@ -1,1 +1,1 @@
-You will have a long and boring life.
+You never hesitate to tackle the most difficult problems.
