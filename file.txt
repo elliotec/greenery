@@ -1,1 +1,1 @@
-Your business will go through a period of considerable expansion.
+You can rent this space for only $5 a week.
