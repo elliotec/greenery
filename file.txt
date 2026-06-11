@@ -1,1 +1,1 @@
-You should go home.
+You have no real enemies.
