@@ -1,1 +1,1 @@
-You will be awarded a medal for disregarding safety in saving someone.
+Caution: breathing may be hazardous to your health.
