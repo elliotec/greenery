@@ -1,1 +1,1 @@
-Don't look now, but the man in the moon is laughing at you.
+Don't hate yourself in the morning -- sleep till noon.
