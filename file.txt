@@ -1,1 +1,1 @@
-Don't hate yourself in the morning -- sleep till noon.
+Do nothing unless you must, and when you must act -- hesitate.
