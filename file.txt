@@ -1,1 +1,1 @@
-Alimony and bribes will engage a large share of your wealth.
+And do you think (fop that I am) that I could be the Scarlet Pumpernickel?
