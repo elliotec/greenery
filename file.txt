@@ -1,1 +1,1 @@
-You are confused; but this is your normal state.
+You'll feel much better once you've given up hope.
