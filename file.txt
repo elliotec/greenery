@@ -1,1 +1,1 @@
-You will gain money by a speculation or lottery.
+You will soon meet a person who will play an important role in your life.
