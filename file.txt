@@ -1,1 +1,1 @@
-Keep it short for pithy sake.
+Your fly might be open (but don't check it just now).
