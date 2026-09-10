@@ -1,1 +1,1 @@
-An avocado-tone refrigerator would look good on your resume.
+It's lucky you're going so slowly, because you're going in the wrong direction.
