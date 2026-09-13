@@ -1,1 +1,1 @@
-Executive ability is prominent in your make-up.
+Save energy: be apathetic.
