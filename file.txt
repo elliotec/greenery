@@ -1,1 +1,1 @@
-And do you think (fop that I am) that I could be the Scarlet Pumpernickel?
+Your depth of comprehension may tend to make you lax in worldly ways.
