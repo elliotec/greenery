@@ -1,1 +1,1 @@
-You are the only person to ever get this message.
+Caution: breathing may be hazardous to your health.
