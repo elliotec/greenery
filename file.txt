@@ -1,1 +1,1 @@
-You are magnetic in your bearing.
+Be cautious in your daily affairs.
