@@ -1,1 +1,1 @@
-You are deeply attached to your friends and acquaintances.
+You too can wear a nose mitten.
