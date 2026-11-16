@@ -1,1 +1,1 @@
-You'll feel much better once you've given up hope.
+You teach best what you most need to learn.
