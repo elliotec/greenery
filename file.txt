@@ -1,1 +1,1 @@
-You will be married within a year, and divorced within two.
+Are you making all this up as you go along?
