@@ -1,1 +1,1 @@
-You will become rich and famous unless you don't.
+It's all in the mind, ya know.
