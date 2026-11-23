@@ -1,1 +1,1 @@
-You are as I am with You.
+You can rent this space for only $5 a week.
